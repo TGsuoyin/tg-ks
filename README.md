@@ -10,4 +10,4 @@ tg快三机器人 快三骰子机器人 nodejs
 * [👉TG其他---》TG索引机器人，telegram超级索引群组](https://t.me/sousuo_z)
 * [👉TG其他---》TG快三机器人](https://t.me/kstest1s)
 * [👉TG记账机器人-分销-包月-自助充值](https://t.me/tg_tj_bot)
-* [👉安卓远控 肉鸡 盗U](https://t.me/yuankong09)
+
