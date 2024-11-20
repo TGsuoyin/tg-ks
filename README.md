@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/943ff289-3dfe-4e48-a224-853496fd5e64)# TG游戏 福利来手摇快三机器人 骰子
+# TG游戏 福利来手摇快三机器人 骰子
 tg福利来同款手摇快三机器人 手摇快三骰子机器人  
 体验群 https://t.me/ceshikuaisan
 其他
